@@ -1,2 +1,1 @@
-# netflix
-https://lnkd.in/ev7b2U2h
+https://keshavnagar.github.io/netflix/
